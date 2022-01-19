@@ -1,7 +1,7 @@
 ## **Shan McLain**
 __________________
 
-<br>![Taylor McLain](C:\Users\Mike Kelley\Pictures\Camera Roll)<br>
+<br>![Taylor](WIN_20220118_08_39_00_Pro (3))<br>
 <taylor.mclain@revature.net><br>
 Recent *Computer Science* grad, former *HVAC* technician.
 
